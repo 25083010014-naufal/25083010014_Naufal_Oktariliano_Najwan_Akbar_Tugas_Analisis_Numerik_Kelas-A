@@ -1,0 +1,1 @@
+# 25083010014-naufal-25083010014_Naufal_Oktariliano_Najwan_Akbar_Tugas_1_Analisis_Numerik
